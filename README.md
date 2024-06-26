@@ -2,7 +2,7 @@
 - 👀 I’m interested in CyberSec,WebDev & Piracy😶‍🌫️
 -🌱 I’m currently learning html,css,JS
 - 💞️ I’m looking to collaborate on Piracy related projects that aim to provide paid content for free.
-- 📫 How to reach me phantomcodex9@gmail.com
+- 📫 How to reach me phantomx92@proton.me
 - ⚡ Fun fact: I am Batman🦇🦇
 
 <!---
