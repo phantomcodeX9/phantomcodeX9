@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @phantomcodeX9
 - 👀 I’m interested in CyberSec,WebDev.
-- 💞️ I’m looking to collaborate on Piracy related projects that aim to provide paid content for free.
+- 💞️ I’m looking to collaborate on projects that aim to really help people
 - 📫 How to reach me phantomx92@proton.me
 - ⚡ Fact: I am Batman🦇🦇
 
